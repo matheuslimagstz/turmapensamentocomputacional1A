@@ -1,0 +1,1 @@
+# turmapensamentocomputacional1A
